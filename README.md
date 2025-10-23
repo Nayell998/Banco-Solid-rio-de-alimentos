@@ -1,1 +1,0 @@
-Banco Solidário de alimentos
